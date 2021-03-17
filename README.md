@@ -1,2 +1,0 @@
-# majalahantarakita.github.io
-Hallo
